@@ -8,4 +8,11 @@ sweet but crazy!!!!
 
 ![1000001744](https://github.com/user-attachments/assets/aa8db5ae-374d-42dd-9a2b-1ef2e25237b0)
 
+![1000001741](https://github.com/user-attachments/assets/55611594-6b72-4740-b05d-696d2c228daf)
+
+![1000001744](https://github.com/user-attachments/assets/81530b45-1165-4105-8c34-733cb49aca05)
+
+![1000001740](https://github.com/user-attachments/assets/509121af-6f0d-45e4-815b-33e9d25fd35f)
+
+
 ＊*•̩̩͙✩•̩̩͙*˚ ＊*•̩̩͙✩•̩̩͙*˚ ＊*•̩̩͙✩•̩̩͙*˚ ＊*•̩̩͙✩•̩̩͙*˚ ＊*•̩̩͙✩•̩̩͙*˚  ˚*•̩̩͙✩•̩̩͙*˚＊ ˚*•̩̩͙✩•̩̩͙*˚＊ ˚*•̩̩͙✩•̩̩͙*˚＊ ˚*•̩̩͙✩•̩̩͙*˚＊ ˚*•̩̩͙✩•̩̩͙*˚＊

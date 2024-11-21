@@ -1,5 +1,11 @@
 sweet but crazy!!!! 
 
+𝐶𝑜𝑠𝑚𝑜. / 𝑚𝑖𝑙𝑙𝑡. / 𝑠𝑡𝑎𝑟𝑑𝑢𝑠𝑡 / 𝑡𝑢𝑛𝑛𝑒𝑟𝑏𝑢𝑡𝑡𝑒𝑟. ---------__________
+
+______
+_______
+_________
+
 ![1000001737](https://github.com/user-attachments/assets/24584ac3-0e2a-4045-9fec-26b3a38c3a30)
 
 ![1000001738](https://github.com/user-attachments/assets/219d62e3-22ae-40bb-aa2a-9e01179f5fef)
@@ -26,3 +32,6 @@ sweet but crazy!!!!
 
 
 ![1000001427](https://github.com/user-attachments/assets/eb7bb419-9c09-4b2a-8dad-475b4a8bf6f0)
+______________________________________________________________________________________________®®
+
+![1000001341](https://github.com/user-attachments/assets/c965e0f5-89ec-45da-9044-c856811fa555)

@@ -10,9 +10,17 @@ sweet but crazy!!!!
 
 ![1000001741](https://github.com/user-attachments/assets/55611594-6b72-4740-b05d-696d2c228daf)
 
-![1000001744](https://github.com/user-attachments/assets/81530b45-1165-4105-8c34-733cb49aca05)
-
 ![1000001740](https://github.com/user-attachments/assets/509121af-6f0d-45e4-815b-33e9d25fd35f)
 
+![1000001743](https://github.com/user-attachments/assets/11f8c85b-a67a-4f61-9ac5-706db07d4a59)
+
+![1000001746](https://github.com/user-attachments/assets/da0417b1-75da-4dfc-85ff-fe96881e292b)
+
+ ![1000001742](https://github.com/user-attachments/assets/c8eb774b-619b-4a33-a28f-43d8f2e839d1)
+
+![1000001651](https://github.com/user-attachments/assets/14440809-f02d-4763-9636-0ba225404079)
 
 ＊*•̩̩͙✩•̩̩͙*˚ ＊*•̩̩͙✩•̩̩͙*˚ ＊*•̩̩͙✩•̩̩͙*˚ ＊*•̩̩͙✩•̩̩͙*˚ ＊*•̩̩͙✩•̩̩͙*˚  ˚*•̩̩͙✩•̩̩͙*˚＊ ˚*•̩̩͙✩•̩̩͙*˚＊ ˚*•̩̩͙✩•̩̩͙*˚＊ ˚*•̩̩͙✩•̩̩͙*˚＊ ˚*•̩̩͙✩•̩̩͙*˚＊
+
+
+

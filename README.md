@@ -47,3 +47,22 @@ ________________________________________________________________________________
     
 
 ![1000001631](https://github.com/user-attachments/assets/55d7894e-554d-445e-a9c1-adc9a50cf69a)
+
+
+
+
+
+
+
+
+
+
+ON THE KICK ON THE START FEEL THE SONG IN YER
+HEART
+
+
+
+
+
+![1000000155](https://github.com/user-attachments/assets/79f78b1e-3014-4e1d-b35a-bee6b6348d51)
+

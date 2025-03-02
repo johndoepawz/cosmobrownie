@@ -8,7 +8,7 @@ hey I'm not trying too scare you buttt. t       a  aw I'M ACTUALLY ANIMATIC !!
 bambark i luv you!!!!! 
 
 
-she, her , meow, kitty
+she, her   I'M SO LESBIAN HI
 
 
 

@@ -1,24 +1,12 @@
-sleepy. ![1000001651](https://github.com/user-attachments/assets/63600f35-dd17-40df-a3e2-d9e0784f297f)
-![1000001746](https://github.com/user-attachments/assets/f98e481a-a2f0-4321-af7c-c00753a32209)
-![1000001744](https://github.com/user-attachments/assets/5766c953-ce97-4cf8-a10f-0448a7060acf)
+𝙏𝙃𝘼𝙉𝙂𝙕!!  🍓  .  🐰  #
 
-hey I'm not trying too scare you buttt. t       a  aw I'M ACTUALLY ANIMATIC !! 
-
-
-bambark i luv you!!!!! 
-
-
-she, her   I'M SO LESBIAN HI
-
-
-
-fnadioms, s :  Dandys world, teach the cat, regretevator, forsaken, pighting, Dave and Bambi, golden Apple, (lmao that's it) 
+𝘊𝘈𝘓𝘓 𝘔𝘌 𝘉𝘌𝘙𝘙𝘠 𝘖𝘙 𝘔𝘜𝘍𝘍𝘐𝘕 (𝘗𝘙𝘌𝘍𝘌𝘙 𝘔𝘜𝘍𝘍𝘐𝘕^^)  𝘈𝘜𝘛𝘐𝘚𝘛𝘐𝘊    .  𝘔𝘐𝘕𝘖𝘙   .  𝘚𝘛𝘙𝘌𝘚𝘚𝘌𝘋  . 𝘔𝘈𝘙𝘊𝘏 15  . 𝘐 𝘞𝘐𝘓𝘓 𝘉𝘓𝘖𝘊𝘒 𝘜 𝘐𝘍 𝘠𝘖𝘜 𝘈𝘙𝘌 𝘈 𝘉𝘈𝘋   .  𝘗𝘌𝘙𝘚𝘖𝘕.  🍓  .  #  ✮
 
 
 
 
+𝘋𝘕𝘐 🐰  .  🍓  # :  
 
-![1000004900](https://github.com/user-attachments/assets/ff8d61c1-21dd-4e0f-804d-a911b58aca82)
+𝘗𝘙𝘖𝘚𝘏𝘐𝘛𝘛𝘌𝘙𝘚  .  4𝘓*𝘕𝘎 𝘚𝘜𝘗𝘗𝘖𝘙𝘛𝘌𝘙𝘚  . 𝘛𝘏𝘖𝘚𝘌 𝘒𝘐𝘛𝘛𝘠𝘋𝘖𝘎 𝘍𝘈𝘕𝘚  .  𝘌𝘛𝘊 𝘚𝘖𝘔𝘌𝘛𝘏𝘐𝘕𝘎 𝘉𝘈𝘋. 
 
-
-WHO MADE THIS
+![1000005245](https://github.com/user-attachments/assets/cea9a182-292d-41d4-8fef-845068ad1b25)
